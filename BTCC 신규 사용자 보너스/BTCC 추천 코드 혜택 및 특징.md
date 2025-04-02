@@ -2,6 +2,7 @@
 <h2>소개</h2>
 <p>BTCC는 선도적인 암호화폐 거래소 중 하나로, 사용자가 거래하면서 수익을 극대화할 수 있도록 하는 수익성 높은 추천 프로그램을 제공합니다. 신규 사용자는 <strong>BTCC 가입 보너스</strong>를 받을 수 있으며, 숙련된 트레이더는 <strong>BTCC 추천 보너스</strong>를 받을 수 있습니다. <strong>BTCC 추천 코드</strong>를 사용하면 상당한 보상을 받을 수 있습니다.</p>
 <p>이 가이드에서는 <strong>BTCC 프로모션 코드</strong> 사용 방법, <strong>BTCC 할인 코드</strong>를 사용할 때의 이점, 그리고 최대 <strong>11,000 USDT</strong>를 벌고 <strong>거래 수수료 50% 할인</strong>을 받을 수 있는 방법을 알아보겠습니다.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>BTCC 추천 코드란?</h2>
 <p><strong>BTCC 추천 코드</strong>는 사용자가 가입하거나 다른 사람을 추천할 때 <strong>BTCC 거래 보상</strong>을 받을 수 있는 고유한 프로모션 코드입니다. <strong>BTCC 프로모션 코드</strong>를 입력하면, 독점적인 보너스, 낮은 거래 수수료, 추가 혜택을 누릴 수 있습니다.</p>
