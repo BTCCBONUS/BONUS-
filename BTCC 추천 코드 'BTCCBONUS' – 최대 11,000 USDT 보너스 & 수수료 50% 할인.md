@@ -1,6 +1,8 @@
 <h1>BTCC 추천 코드 'BTCCBONUS' – 최대 11,000 USDT 보너스 & 수수료 50% 할인</h1>
 <h2>소개</h2>
 <p>BTCC에서 거래 보상을 최대한 활용할 수 있는 최고의 방법을 찾고 계십니까? 최신 BTCC 추천 코드(프로모 코드 또는 할인 코드)를 사용하면 신규 사용자에게 최대 11,000 USDT의 가입 보너스와 거래 수수료 50% 할인을 제공합니다. 초보자든 숙련된 트레이더든, BTCC 추천 보너스를 통해 최고의 거래 혜택을 누릴 수 있습니다.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>BTCC 가입 보너스 최대 11,000 USDT</h2>
 <h3>BTCC 추천 코드 - BTCCBONUS</h3>
 <table border="1">
