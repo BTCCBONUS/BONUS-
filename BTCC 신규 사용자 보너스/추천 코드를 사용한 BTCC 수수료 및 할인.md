@@ -2,6 +2,7 @@
 
 <p><strong>소개</strong></p>
 <p>BTCC는 다양한 디지털 자산을 거래할 수 있는 강력한 플랫폼을 제공하는 선도적인 암호화폐 거래소입니다. 암호화폐 시장이 성장함에 따라 BTCC는 경쟁력 있는 수수료 구조와 매력적인 할인 프로그램을 도입하여 사용자가 비용을 최소화하면서 효과적으로 거래할 수 있도록 지원합니다. 사용자가 BTCC의 비용 절감 기회를 최대한 활용할 수 있는 가장 가치 있는 도구 중 하나는 <strong>BTCC 추천 코드</strong>입니다. 이 글에서는 <strong>BTCC 추천 코드</strong>, <strong>BTCC 프로모션 코드</strong>, <strong>BTCC 할인 코드</strong>를 사용하여 거래 보상과 <strong>BTCC 가입 보너스</strong>, 수수료 50% 할인 등의 독점 보너스를 받는 방법을 알아봅니다.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>BTCC 수수료 구조 이해하기</h2>
 <p><strong>현물 거래 수수료</strong></p>
