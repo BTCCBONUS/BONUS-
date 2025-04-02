@@ -4,6 +4,7 @@
 <section>
 <p>BTCC (Bitcoin Trading Company)는 다양한 거래 옵션, 높은 보안성 및 경쟁력 있는 수수료를 제공하는 대표적인 암호화폐 거래소 중 하나입니다. BTCC를 시작하려면 <strong>BTCC 추천 코드</strong>를 사용하여 가입하는 것이 혜택을 극대화할 수 있는 좋은 방법입니다. 이 글에서는 <strong>추천 코드</strong> 또는 <strong>프로모션 코드</strong>를 사용하여 BTCC에 등록하는 단계별 과정을 안내해 드립니다. 이를 통해 <strong>11000 USDT</strong> 보너스, <strong>50% 수수료 할인</strong> 등의 다양한 혜택을 누릴 수 있습니다.</p>
 </section>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <section>
 <h2>BTCC 추천 코드를 사용해야 하는 이유</h2>
